@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SubToy0nikos
+- 👀 I’m interested in Youtube, Scripting and more!
+- 🌱 I’m currently learning School stuff
+- 💞️ I’m looking to collaborate on Nothing  
+- 📫 How to reach me Reach me on discord @notlightningsplash
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: A crocodile cannot stick its tongue out
