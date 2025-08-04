@@ -2,6 +2,6 @@
 - 👀 I’m interested in Youtube, Scripting and more!
 - 🌱 I’m currently learning School stuff
 - 💞️ I’m looking to collaborate on Nothing  
-- 📫 How to reach me Reach me on discord @notlightningsplash
+- 📫 How to reach me Reach me on discord @yonikosyt
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: A crocodile cannot stick its tongue out
